@@ -1,2 +1,2 @@
 # Soraly-s-Shoes
-Lấy đi thằng lồn :v
+Come on ! Take it now my friends :v
